@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Bongthui
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning java?
+- 💞️ I’m looking to collaborate on nowhere
+- 📫 How to reach me đ ai biết 
